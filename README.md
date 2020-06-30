@@ -1,6 +1,6 @@
 You touched my heart on a summer's night.
 
-And we walk through our silly fights and funny days.
+And we walk through our silly fights also funny days.
 
 Now I just pray and say...
 
